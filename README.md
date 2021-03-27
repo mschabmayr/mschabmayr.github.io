@@ -1,2 +1,0 @@
-# mschabmayr.github.io
-Website
